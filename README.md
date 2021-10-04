@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mostafafafy
 - 👀 I’m interested in awareness stage.
-- 🌱 I’m currently learning degital marketing
+- 🌱 I’m currently learning digital marketing
 - 💞️ I’m looking to collaborate on Teaching digital marketing to everyone
 - 📫 How to reach me README.md
 
